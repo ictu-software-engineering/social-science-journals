@@ -1,4 +1,4 @@
-# Tổng hợp journal là điểm đến (ưa thích) của một số PGS trong lĩnh vực xã hội
+# Tổng hợp journal là điểm đến (ưa thích) trong lĩnh vực xã hội
 1. International Journal of Education and Practice (Q3) - $1500
 2. Jurnal Pendidikan IPA Indonesia (Q3) - $325
 3. International Journal of Learning, Teaching and Educational Research (Q3) - $1200
